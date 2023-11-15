@@ -1,0 +1,1 @@
+# ProjetoGDI_2023.2
